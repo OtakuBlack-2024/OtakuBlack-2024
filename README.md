@@ -10,4 +10,9 @@ Meu nome é Rafael F. Custódio
 ### A senhorita ou o senhor, podem entrar em contato comigo ☎️
 
 rf927072@gmail.com
+
 @1homem_depreto2024
+
+
+![](https://media1.tenor.com/m/CGV5iTXV3rQAAAAd/one-piece-shanks.gif)
+

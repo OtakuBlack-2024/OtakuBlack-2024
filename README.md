@@ -1,16 +1,13 @@
-## Hi there 👋
+## Ben-vindos(as) ao meu perfil. 🖤
 
-<!--
-**OtakuBlack-2024/OtakuBlack-2024** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+Meu nome é Rafael F. Custódio
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- Estou estudando Programação e Tecnologia
+- Estou me desenvolvendo em criar jogos, fazendo edits e montando minha própria equipe de negócios
+- Meu objetivo é ser empreendedor e administrar minha própria empresa de negócios
+
+### A senhorita ou o senhor, podem entrar em contato comigo ☎️
+
+rf927072@gmail.com
+@1homem_depreto2024
